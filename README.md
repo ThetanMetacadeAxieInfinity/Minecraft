@@ -26,3 +26,13 @@ Minecraft download and how to install it on Windows 11/10/8/7. On This Page :.
 ## License
 
 This project is licensed for free to enjoy forever. License - see the LICENSE.md file for details
+
+
+minecraft download
+minecraft gratis
+minecraft classic
+minecraft online
+minecraft java
+minecraft pc
+minecraft download gratis
+minecraft jogo
